@@ -10,5 +10,4 @@
 
 @0000109195157sp@al.educacao.sp.gov.br
 
-
-Colette Sevılıyo GIF - Colette Sevılıyo GIFs
+![](https://media1.tenor.com/m/ZWtZyb6A5pcAAAAC/colette-sev%C4%B1l%C4%B1yo.gif)
